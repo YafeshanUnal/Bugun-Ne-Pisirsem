@@ -27,4 +27,4 @@ https://nepisirsembugun.com
 
 ![Tarifler](Ekran%20g%C3%B6r%C3%BCnt%C3%BCs%C3%BC%202022-07-10%20205917.png)
 
-####*Afiyet Olsun* :)
+### *Afiyet Olsun* :)
